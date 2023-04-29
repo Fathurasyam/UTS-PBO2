@@ -3,7 +3,6 @@ Pengumpulan UTS PBO2
 
 
 Kelompok 1:
-
 Hiskia Tri Bekana Sinaga (211401118) & Nurul Bintang Andini (211401106)
 
 
