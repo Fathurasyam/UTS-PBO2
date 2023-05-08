@@ -29,5 +29,8 @@ Masyitoh (211401112) & Muhammad Fauzy Harahap (211401142)
 Kelompok 7:
 John Sembiring (211401075) & Ahmad Fauzi Rizky (211401087)
 
+Kelompok 8:
+Ahmad Faiz Amru (211401127)
+
 
 Link Soal UTS:https://drive.google.com/drive/folders/1L8ptvCnwMAxVbwIrBCMddCKvx70GterC?usp=sharing
